@@ -1,1 +1,1 @@
-# kidda fir chilli paneer
+# dickshit
